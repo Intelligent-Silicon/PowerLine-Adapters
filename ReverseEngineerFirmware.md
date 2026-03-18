@@ -37,6 +37,8 @@ https://arcanenibble.github.io/dumping-lego-nxt-firmware-off-of-an-existing-bric
 
 Youtube:
 
+[RE//verse 2026: Hacking the Xbox One by Markus 'doom' Gaasedelen - A world first!!](https://www.youtube.com/watch?v=FTFn4UZsA5U)
+
 https://www.youtube.com/watch?v=KsiuA5gOl1o
 
 https://www.youtube.com/@mediacccde
